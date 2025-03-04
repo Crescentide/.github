@@ -12,4 +12,4 @@
 - 🎮 Untitled Game
 
 ---
-For inquires please contact kiru ([at]) kirugaming ([dot]) com.
+For inquires please contact inquiries ([at]) crescentide ([dot]) com.
